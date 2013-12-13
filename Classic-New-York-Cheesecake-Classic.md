@@ -1,5 +1,7 @@
 # Classic New York Cheesecake #
 
+A real classic, dense, smooth and creamy. Including heavy cream, vanilla and a little lemon and just perfect for every day.
+
 ![alt tag](http://distilleryimage9.ak.instagram.com/2c2b14e8715111e28ddc22000a9f15db_7.jpg)
 
 ## Ingredients ##
@@ -20,6 +22,7 @@
     5 large eggs
     80 ml (1/3 cup) heavy whipping cream
     1 tablespoon organic lemon zest
+    1 tablespoon pure vanilla extract
 
 ### Topping ###
 
@@ -56,7 +59,7 @@ Note: To avoid getting too much air into your filling, it's important to beat th
 1. put all the cream cheese into your bowl and mix it until it's smooth.
 2. add sugar and flour, beat for about 2 minutes.
 3. add the eggs (one at a time) and beat well (about 30 s per egg).
-4. add whipping cream and lemon zest.
+4. add whipping cream, lemon zest and vanilla extract and beat.
 5. Pour the filling in your prepared crust, smoothen the surface with a spoon or your dough scraper and put your cake in the oven. Now ...
 
 ### Bake it! ###
