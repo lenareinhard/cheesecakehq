@@ -1,5 +1,7 @@
 # Classic New York Cheesecake #
 
+![alt tag](http://distilleryimage9.ak.instagram.com/2c2b14e8715111e28ddc22000a9f15db_7.jpg)
+
 ## Ingredients ##
 * all ingredients, except the ones with special annotations, should be at room temperature)
 * please use full fat ingredients, darling. Low-fat is not cool.
