@@ -1,6 +1,6 @@
 # Peanut Butter Cup Cheesecake
 
-This is based on a Cheesecake recipe I found on [BBC Good Food](http://www.bbcgoodfood.com/recipes/1759649/peanut-butter-cheesecake) with a slight modification as I could never get the topping to set as per their instructions.
+This is based on a Cheesecake recipe I found on [BBC Good Food](http://www.bbcgoodfood.com/recipes/1759649/peanut-butter-cheesecake) with a slight modification as I could never get the topping to set as per their instructions. The end product reminds me a lot of Reese's Peanut Butter Cups, which is always A Good Thing™.
 
 _DISCLAIMER:_ There are so many calories in a single serving of this cheesecake, you should eat this responisibly and definitely with other people!
 
