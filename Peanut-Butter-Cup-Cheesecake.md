@@ -6,8 +6,8 @@ _DISCLAIMER:_ There are so many calories in a single serving of this cheesecake,
 
 ### For the base
 
-    50g butter
-    175g pack peanut cookies
+    100g butter
+    350g pack peanut cookies
 
 ### For the filling
 
